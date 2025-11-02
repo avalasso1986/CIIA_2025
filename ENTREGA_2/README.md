@@ -1,4 +1,4 @@
-Estudiante: Abraham Valencia Lassso
+Estudiante: Abraham Valencia Lasso
 
 Programa: Ingenieria Industrial Modalidad Virtual
 
