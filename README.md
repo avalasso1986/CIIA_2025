@@ -6,4 +6,4 @@ Ingenieria Industrial
 
 Enlace Video Entrega 2 : https://www.youtube.com/watch?v=SQHFUfX-8zM&t=3s
 
-Enlace Video Entrega 3: 
+Enlace Video Entrega 3: https://youtu.be/rIz6DXQA0TY
